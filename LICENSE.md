@@ -1,4 +1,4 @@
-
+adopt me premium Scripts offers the most advanced adopt me Script, with esp and auto-heal. Perfect for dominating any match.
 
 
 
